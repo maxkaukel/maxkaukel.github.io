@@ -2,7 +2,7 @@
 Danke für Ihren Besuch, hier ist die Website für mein Business Plan.
 
 
-![](picture/Cashiers_work_in_a_store_1965_(JOKAUAS2_12604-1).tif)
+![](picture/istockphoto-1037570160-1024x1024.jpg)
 
 Falls sie sich für die Stelle als Kassenkraft bewerben möchten, senden sie Ihre Bewerbung, Zeugnisse und Qualifikationen an maxkaukel@gmail.com.
 
