@@ -1,8 +1,10 @@
 # maxkaukel.github.io
 Danke für Ihren Besuch, hier ist die Website für mein Business Plan.
-Falls sie sich für die Stelle als Kassenkraft bewerben möchten, senden sie Ihre Bewerbung, Zeugnisse und Qualifikationen an maxkaukel@gmail.com.
+
 
 ![](picture/Screenshot%202026-07-12%20120056.png)
+
+Falls sie sich für die Stelle als Kassenkraft bewerben möchten, senden sie Ihre Bewerbung, Zeugnisse und Qualifikationen an maxkaukel@gmail.com.
 
 Stellenbeschreibung für die Kassenkraft:
 Für unseren “Plauder Laden” in der Fackelrondellstr.1 in Kaiserslautern suchen wir baldmöglichst eine*n Kassierer*in (m/w/d) in Vollzeit.
